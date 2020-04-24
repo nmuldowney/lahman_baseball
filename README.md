@@ -1,4 +1,4 @@
-#### Nashville City Cemetary - Marketing Project
+#### Nashville City Cemetery - Marketing Project
 
 Background of Project:  
 
